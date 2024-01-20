@@ -2,7 +2,7 @@
 - 👀 I’m interested in yolo!
 - 🌱 I’m currently learning YOLOv8.
 - 💞️ I’m looking to collaborate on YOLO.
-- 📫 How to reach me YOLO.
+- 📫 How to reach me email: lacusparadox@qq.com.
 - 😄 Pronouns: HiTher
 - ⚡ Fun fact: A funny and lazy guy
 
